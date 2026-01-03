@@ -14,7 +14,7 @@ here are some link that i can provide at this moment of time that can be help fu
 ```
 https://www.worldcubeassociation.org/persons/2024RAHM04
 ```
--youtube and facebook video on the cube compitition that he compited on (NOTE 1)-
+-youtube and facebook video on the cube compitition that he completed on (NOTE 1)-
 
 ```
 https://www.youtube.com/watch?v=pFMIz8yu-48 (this video is long)
