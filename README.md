@@ -4,7 +4,7 @@
 plz read this!!!
 
 
-this repo is used to find a guy named Cracker || arbaz rahman 
+this repo is used to find a guy named Cracker || arbaaz rahman 
 this repo will soon have all of the important data like Arbaz rahman's house, School, WCA history and more 
 here are some link that i can provide at this moment of time that can be help full to hunt down and find Arbaz
 
